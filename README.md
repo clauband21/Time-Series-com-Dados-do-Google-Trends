@@ -1,0 +1,1 @@
+# Time-Series-com-Dados-do-Google-Trends
